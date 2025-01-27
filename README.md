@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Chadydaddy
 - 👀 I’m interested in video game and females
-- 🌱 I’m currently learning stuf in juinor high
+- 🌱 I’m currently learning stuff in juinor high
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 you can reach me by emailing  @chad.bennett2013@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im 13 but i sound 9
 
